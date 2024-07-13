@@ -1,1 +1,0 @@
-![Чудик](https://masterpiecer-images.s3.yandex.net/857ee14744ab11ee936d96e999421984:upscaled)
